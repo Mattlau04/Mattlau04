@@ -1,4 +1,3 @@
-[![Run on Repl.it](https://repl.it/badge/github/Mattlau04/Mattlau04)](https://repl.it/github/Mattlau04/Mattlau04)
 ### ️️️⚙️ I AM MAD SCIENTIST! ⚙️
 
 <!--
