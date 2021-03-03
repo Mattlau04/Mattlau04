@@ -19,3 +19,9 @@ bro i found hacker features
 ![cat](https://github.githubassets.com/images/mona-whisper.gif)
 -->
 I wish i could dev :pensive:
+
+Need help with something i made?  
+Here's where you can contact me:
+-Discord: Mattlau04#9081
+(You can join [this server i'm in](https://discord.gg/taXFZk2) so you can send me messages without having to add me as friend)
+-Twitter: @Mattlau04
